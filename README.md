@@ -2,7 +2,7 @@
 
 **`Desenvolvedora FullStack`**
 
-Me chamo Rafaela Nascimento Sant´Ana, tenho 20 anos e sou natural de Minas Gerais mas moro no interior de SP. Concluí o ensino médio em Minas com o curso técnico em informática. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na UNIFRAN. Sou apaixonada por tecnologia e compartilho meu conhecimento através dos meus tiktoks "[rafaelasantana00 e mulher-tech]".
+Análise e Desenvolvimento de Sistemas - UNIFRAN
 
 <p align="left">
     <a href="https://www.youtube.com/@larissakich?sub_confirmation=1">
