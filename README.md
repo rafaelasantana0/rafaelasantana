@@ -1,1 +1,1 @@
-# rafaelasantana
+Me chamo Rafaela Nascimento Sant´Ana, tenho 20 anos e sou natural de Minas Gerais. Concluí o ensino médio, com o curso técnico em informática. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na UNIFRAN. Sou apaixonada por tecnologia e compartilho meu conhecimento através do meu tiktok profissional MULHER-TECH e no meu pessoal RAFAELASANTANA00.
